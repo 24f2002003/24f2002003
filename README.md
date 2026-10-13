@@ -87,7 +87,7 @@ Here are some projects I'm working on and improving:
 ## 🤝 Let's Connect
 
 - GitHub: [@24f2002003](https://github.com/24f2002003)
-- LinkedIn: Add your LinkedIn profile here
+- LinkedIn: https://www.linkedin.com/in/aman-verma-0531a3311?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ---
 
